@@ -63,4 +63,4 @@ Kamuoyuna saygılarımızla sunarız.
 
 
 
-###### Not: Metinde yer alan iddialara ilişkin belgelere [buradan](./belgeler) ulaşabilirsiniz.
+###### Not: Metinde yer alan iddialara ilişkin belgelere [buradan](https://github.com/koopbirlik/koopbirlik.github.io/tree/main/belgeler) ulaşabilirsiniz.
