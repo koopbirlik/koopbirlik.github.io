@@ -87,7 +87,7 @@ Kamuoyuna saygılarımızla sunarız.
   <img src="asset/logo.jpg" alt="https://x.com/IzKoMa35" width="150" height="150">
 </p>
 <p align="left">
-  <img src="asset/murano.jpg" alt="https://x.com/IzKoMa35" width="600" height="100">
+  <img src="asset/koops.png" alt="https://x.com/IzKoMa35" width="600" height="100">
   
 </p>
 
