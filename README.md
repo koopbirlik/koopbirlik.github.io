@@ -4,8 +4,6 @@
 </a>
 
 
----
-
 ![İzmir Kooperatif Mağdurları Birliği](asset/header.jpg)
 
 ---
