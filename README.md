@@ -83,10 +83,10 @@ Kamuoyuna saygılarımızla sunarız.
 
 ### İzmir Kooperatif Mağdurları Birliği
 
-<p align="left">
+<p align="center">
   <img src="asset/logo.jpg" alt="https://x.com/IzKoMa35" width="150" height="150">
 </p>
-<p align="left">
+<p align="center">
   <img src="asset/koops.png" alt="https://x.com/IzKoMa35" width="600" height="100">
   
 </p>
