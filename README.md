@@ -9,8 +9,8 @@
 ---
 
 
-**BASIN AÇIKLAMASI VE CHP İZMİR İL BAŞKANINA AÇIK MEKTUP**  
-28.09.2024
+# BASIN AÇIKLAMASI VE CHP İZMİR İL BAŞKANINA AÇIK MEKTUP
+#### 28.09.2024
 
 CHP İzmir İl Başkanı Şenol Aslanoğlu, 25.09.2024 akşamı Ege TV’de yayınlanan bir programda Kentsel Dönüşüm Kooperatifleri hakkında bazı açıklamalarda bulundu. Yöneticilerin aylardır bir açıklama yapmadığı kooperatif sorunuyla ilgili açıklamaları dikkatle izledik.  
 Bizler, **CHP’li kooperatif yöneticilerinin idare edemediği ve eskalasyon batağına sapladığı kooperatiflerin ortakları olarak**, Şenol Aslanoğlu’nun açıklamalarına karşı isyan ediyoruz.
