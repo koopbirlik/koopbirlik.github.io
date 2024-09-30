@@ -2,8 +2,7 @@
 <a href="https://x.com/IzKoMa35" style="float:right; margin-right:10px;">
   <img src="asset/x.svg" alt="İzmir Kooperatif Mağdurları Birliği " width="32" height="32">
 </a>
-</br>
-</br>
+
 
 ---
 
