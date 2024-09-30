@@ -10,7 +10,7 @@
 
 
 # BASIN AÇIKLAMASI VE CHP İZMİR İL BAŞKANINA AÇIK MEKTUP
-#### 28.09.2024
+#### 30.09.2024
 
 CHP İzmir İl Başkanı şenol aslanoğlu, 25.09.2024 akşamı Ege TV’de yayınlanan bir programda Kentsel Dönüşüm Kooperatifleri hakkında bazı açıklamalarda bulundu. Yöneticilerin aylardır bir açıklama yapmadığı Kooperatif sorunuyla ilgili açıklamaları dikkatle izledik.
 
@@ -23,18 +23,24 @@ Bizler, **CHP’Lİ KOOPERATİF YÖNETİCİLERİNİN İDARE EDEMEDİĞİ VE ESKA
 
 **BELEDİYEMİZİN ELİNDE HER TÜRLÜ PERSONEL, DONANIM VE TEKNİK İMKAN VARKEN, PLANLAMANIN TIKIR TIKIR İŞLEMESİ GEREKTİĞİ HALDE YILLARDIR NEDEN PROJELERİN ONAYLANMASINI BEKLEDİĞİMİZE HİÇ DEĞİNMEMİŞTİR.**
 
-Beyefendinin “Olur mu olmaz mı? Oldurmuşlar” diye bahsettiği İzbeton ile Kooperatifler arasındaki SÖZLEŞMELER, KANUNA AYKIRI VE USULSÜZ ŞEKİLDE HAZIRLANMIŞTIR. Kentsel Dönüşüm adı altında kurulan, “Türkiye için örnek model” diye sunulan ve pazarlanan TÜM KOOPERATİFLERLE AYNI USULSÜZ sözleşme imzalanmıştır. İşin acı tarafı, **BÜTÜN KOOPERATİFLERDEKİ** **KURUCU ÜYELERİN TAMAMI, BU USULSÜZ SÖZLEŞMELERİ YAPARAK TÜM KOOPERATİF ÜYELERİNİ DAHA EN BAŞINDAN MAĞDURİYETE MAHKUM ETMİŞLERDİR.**
+Beyefendinin TV programında “Olur mu olmaz mı? Oldurmuşlar” diye bahsettiği İzbeton ile Kooperatifler arasındaki SÖZLEŞMELER, KANUNA AYKIRI VE USULSÜZ ŞEKİLDE HAZIRLANMIŞTIR. Kentsel Dönüşüm adı altında kurulan, “Türkiye için örnek model” diye sunulan ve pazarlanan TÜM KOOPERATİFLERLE AYNI USULSÜZ sözleşme imzalanmıştır. İşin acı tarafı, **BÜTÜN KOOPERATİFLERDEKİ** **KURUCU ÜYELERİN TAMAMI, BU USULSÜZ SÖZLEŞMELERİ YAPARAK TÜM KOOPERATİF ÜYELERİNİ DAHA EN BAŞINDAN MAĞDURİYETE MAHKUM ETMİŞLERDİR.**
 
-Bütün bunları bildiğiniz halde, usulsüz sözleşmelerin derhal düzeltilmesi için Bakanlık müfettişleri tarafından 2023 yılının Ağustos ayında yapılan YAZILI ihtara rağmen NEDEN HİÇ BİR SORUN YOKMUŞ GİBİ DAVRANDINIZ? Mesela GAZİEMİR İŞ İNSANLARI KY KOOPERATİFİNDE 2 YIL BOYUNCA YAPTIĞINIZ DETİM KURULU ÜYELİĞİNİZ 19.04.2024’E KADAR DEVAM ETTİĞİ HALDE YÖNETİM KURULUNUZA NEDEN SÖZLEŞMELERDEKİ USULSÜZLÜKTEN VE DÜZELTİLMESİ GEREKTİĞİNDEN BAHSETMEDİNİZ? CHP’NİN İZMİR İL TEMSİLCİĞİNİ DE BÖYLE Mİ YÜRÜTÜYORSUNUZ?
+1163 sayılı kooperatifler kanunun  42. Maddesinin 6. bendinde   **_“Gayrimenkul alımında ve satımında takip edilecek usul ile alınacak gayrimenkulün niteliğini, yerine ve azami fiyatını, satılacak gayrimenkulün asgari fiyatını belirlemek...”_**  yine 7. bendinde **_“İmalat ve inşaat işlerinin yaptırılma yöntemini belirleme yetkisi genel kurula aittir.”_** denilmiştir. 
+Yine ana sözleşmenin ARSA ALIMI başlıklı  58. Maddesinde **_“Arsa alımında takip edilecek usul ile alınacak arsanın niteliği, yeri ve azami fiyatı genel kurulca tespit edilir.  Arsa alımının, tapu devri veya tapuya şerh verdirilecek bir satış vaadi sözleşmesi ile yapılması ve alınacak arsanın kooperatifin amacına uygun olması şarttır”_** hükmü yer almaktadır.
 
-  
-  
+Yukarıda bahsi geçen kanunlara ve ana sözleşmeye aykırı, usulsüz kararların alındığı “ilk” Genel Kurullarda Divan Başkanlarının ve Katiplerin hep aynı isimlerden oluşmasını nasıl açıklayacaksınız? Yine “…OLDURMUŞLAR” diyebilecek misiniz?
 
-Kooperatif başkanının güvenilir olması gerektiği için kendisine başkanlık teklifi yapıldığını söylerken, şenol beyin İzmir’de aslanoğullarından daha güvenilir insan bulunmayacağını kast ettiğini sanıyoruz. Çünkü kendisi 28.11.2019’da SS İş Adamları KYK, 07.01.2022’de SS İş İnsanları Örnekköy KYK ve 20.06.2022’de SS İmece Yaka KY Kooperatiflerini kurarken abisi salim birol aslanoğlu ise 10.06.2022’de SS İş İnsanları Gaziemir KY Kooperatifini kurmuştur.
+İzbeton ile usulsüz sözleşme yapan 4 KOOPERATİFİN DE İLK GENEL KURULUNDA ASALETEN BULUNDUĞUNUZ HALDE NEDEN SÖZLEŞMELERİN USULSÜZ OLDUĞUNA İTİRAZ ETMEDİNİZ?
+
+Peki, usulsüz sözleşmelerin derhal düzeltilmesi için Bakanlık müfettişleri tarafından 2023 yılının Ağustos ayında yapılan YAZILI ihtara rağmen NEDEN HİÇ BİR SORUN YOKMUŞ GİBİ DAVRANMAYA DEVAM ETTİNİZ? Mesela GAZİEMİR İŞ İNSANLARI KY KOOPERATİFİNDE 2 YIL BOYUNCA YAPTIĞINIZ DENETİM KURULU ÜYELİĞİNİZ 19.04.2024’E KADAR DEVAM ETTİĞİ HALDE YÖNETİM KURULUNUZA NEDEN SÖZLEŞMELERDEKİ USULSÜZLÜKTEN VE DÜZELTİLMESİ GEREKTİĞİNDEN BAHSETMEDİNİZ? 
+
+CHP’NİN İZMİR İL TEMSİLCİĞİNİ DE BÖYLE Mİ YÜRÜTÜYORSUNUZ?
+
+Kooperatif başkanının güvenilir olması gerektiği için kendisine başkanlık teklifi yapıldığını söylerken, şenol beyin İzmir’de aslanoğullarından daha güvenilir insan bulunmayacağını kast ettiğini sanıyoruz. Çünkü kendisi **28.11.2019’da SS İş Adamları KYK**, 07.01.2022’de SS İş İnsanları Örnekköy KYK ve **20.06.2022’de SS İmece Yaka KY Kooperatiflerini** kurarken abisi salim birol aslanoğlu ise 10.06.2022’de SS İş İnsanları Gaziemir KY Kooperatifini kurmuştur.
 
 **Hal böyleyse “neden diğer 3 kentsel dönüşüm kooperatifini de siz kurmadınız sayın başkan?” diye kendisine sormak istiyoruz. BİR SİYASİ PARTİNİN İL BAŞKANININ KOOPERATİF KURMAKTAN DAHA ÖNEMLİ GÖREVLERİ OLMASI GEREKMEZ Mİ?**
 
-**AYNI ANDA 2 KOOPERATİFTE OLMAMAYA DİKKAT EDEREK KAÇ KOOPERATİFİN YÖNETİM VE DENETİM KURULLARINDA GÖREV ALDINIZ sayın aslanoğlu? LÜTFEN CEVAP VERİN?**
+**AYNI ANDA 2 KOOPERATİFTE YÖNETİCİ OLMAMAYA DİKKAT EDEREK KAÇ KOOPERATİFİN YÖNETİM VE DENETİM KURULLARINDA GÖREV ALDINIZ sayın aslanoğlu? LÜTFEN CEVAP VERİN?**
 
 **Bir önceki soruya cevap verebilir mi bilemeyiz ama AYNI TARİHLERDE HEM İŞ İNSANLARI ÖRNEKKÖY (4. ETAP) KYK HEM DE İŞ ADAMLARI KY KOOPERATİFİNDE şenol aslanoğlu’nun YÖNETİCİLİK YAPTIĞI TİCARET SİCİL GAZETESİNDE YAZIYOR. ÇOK FAZLA SAYIDA KOOPERATİF OLUNCA KARIŞTIRILIYOR MU YOKSA?**
 
@@ -44,7 +50,6 @@ Lütfen cevaplayın sayın başkan. SİYASİ PARTİLERİN İL YÖNETİCİLERİN�
 
 **KAMUYU ALDATMAYI SİYASET SANANLARI HOŞ GÖRMEMİZİ HİÇ KİMSE BEKLEMESİN!**
 
-  
   
 
 Açıklamalarına bakarak şenol aslanoğlu’nun çalışma anlayışının, inşaatlar durdurulana kadar, “gerekli hızda çalışılması ve inşaatların vaad edildiği hızda ilerletilmesini” **kapsamadığını** anlıyoruz.
@@ -60,14 +65,14 @@ Açıklamalarına bakarak şenol aslanoğlu’nun çalışma anlayışının, in
 
 Kooperatif Yönetimleri sorularımızı ve eleştirilerimizi aylardır cevapsız bırakmaktalar. Yayında bahsettiğiniz hak ediş bilgilerini biz üyelere niçin vermiyorsunuz? Samimiyseniz, ortada henüz inşaat yokken taşeronlara verilen milyonlarca Lira avansın belgelerini bizden önce siz gösteriniz.
 
-**YAŞATTIĞINIZ MAĞDURİYETLERE RAĞMEN BASINDA YAPTIĞINIZ AÇIKLAMALARDAN HİÇ Mİ UTANMIYORSUNUZ?**
+**YAŞATTIĞINIZ MAĞDURİYETLERE RAĞMEN BASINDA YAPTIĞINIZ AÇIKLAMALARA İNANMAMIZI BEKLEMİYORDUNUZ HERHALDE**
 
   
   
 
 Sorumluluk almaktan bu kadar uzak bir zihniyetin ne İzmir’e ne İl başkanlığına ne de siyaset kurumuna yakışmadığı aşikardır.
 
-Oturduğunuz koltuk size ait değildir! VARLIĞINIZ, bir çoğumuzun oy ve gönül verdiği, ÜYESİ BULUNDUĞUNUZ PARTİYE ZARAR VERMEKTEDİR. **DERHAL SİYASETTEN İSTİFA ETMENİZİ** VE **KOOPERATİFLERİMİZDEN ELİNİZİ ÇEKMENİZİ** **KAMU HUZURUNDA TALEP EDİYORUZ.**
+Oturduğunuz koltuk size ait değildir! VARLIĞINIZ, bir çoğumuzun oy ve gönül verdiği, ÜYESİ BULUNDUĞUNUZ PARTİYE ZARAR VERMEKTEDİR. **DERHAL SİYASETTEN İSTİFA ETMENİZİ** VE **KOOPERATİFLERİMİZDEN ELİNİZİ ÇEKMENİZİ** **KAMU HUZURUNDA TALEP EDİYORUZ.**
 
 Son olarak;
 
@@ -77,9 +82,10 @@ BU SORUYU **TUNÇ SOYER** BAŞTA OLMAK ÜZERE, PARTİNİN ESKİ VE YENİ ÜST D�
 
 **5.000 AİLE, MERAKLA SİZLERDEN GELECEK CEVABI BEKLİYORUZ.**
 
-ÜYELERE KARŞI VERECEĞİNİZ YA DA VERMEYECEĞİNİZ CEVAPLAR İLE HER BİRİNİZİN TUTUMUNU HASSASİYETLE TAKİP ETMEKTEYİZ.
+ÜYELERE KARŞI VERECEĞİNİZ YA DA VERMEYECEĞİNİZ CEVAPLAR İLE HER BİRİNİZİN TUTUMUNU <u>HASSASİYETLE TAKİP ETMEKTEYİZ.</u>
 
 Kamuoyuna saygılarımızla sunarız.
+
 
 ### İzmir Kooperatif Mağdurları Birliği
 
