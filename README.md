@@ -87,11 +87,8 @@ Kamuoyuna saygılarımızla sunarız.
   <img src="asset/logo.jpg" alt="https://x.com/IzKoMa35" width="150" height="150">
 </p>
 <p align="left">
-  <img src="asset/murano.jpg" alt="https://x.com/IzKoMa35" width="100" height="100">
-  <img src="asset/burano.jpg" alt="https://x.com/IzKoMa35" width="100" height="100">
-  <img src="asset/newtown.jpg" alt="https://x.com/IzKoMa35" width="100" height="100">
-  <img src="asset/yaka.jpg" alt="https://x.com/IzKoMa35" width="100" height="100">
-  <img src="asset/gazi.jpg" alt="https://x.com/IzKoMa35" width="100" height="100">  
+  <img src="asset/murano.jpg" alt="https://x.com/IzKoMa35" width="600" height="100">
+  
 </p>
 
 
